@@ -1,0 +1,1 @@
+# edilshop-privacy-policy
